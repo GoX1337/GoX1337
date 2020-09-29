@@ -1,1 +1,1 @@
-![alt-text](https://static2.fjcdn.com/thumbnails/comments/Already+made+a+transparent+version+for+some+guy+earlier+here+_75cfd30d3271792a86d59c90419f3fb1.gif)
+![](https://media1.tenor.com/images/be1e4f6a00f39ac32dd8256ea1f293a1/tenor.gif)
